@@ -1,0 +1,7 @@
+- 👋Olá, sou @leoferna9
+- 👀 Estou interessado em novas amizades
+- 🌱 Atualmente estou no ensino médio 
+- 💞️ Procuro colaborar em tudo 
+- 📫 Como entrar em contato comigo: 42998153601 ou no insta leo_ferna9
+- 😄 Pronomes: nenhum 
+- ⚡ Curiosidade: sou pardo e muito amigo ksks
